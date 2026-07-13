@@ -1,0 +1,6 @@
+Naomi has blue eyes and blond hair. She has a handmade hairclip with the same appearance as the one she gave Kasane when they were younger. Naomi's battle attire is unnamed.
+The oldest daughter of the wealthy Randall family, operators of the huge military contracting pharmaceutical company, Randall Industries. She was doted on by her parents and raised without a want in the world. She's not at all selfish, however, and grew into a a girl who treats everyone equally with a pure kindness and strong sense of justice.
+Kasane was adopted by the Randalls when she was young, but never felt like part of the family and was treated coldly by her parents. However, Naomi loved her enough to make up for that, and treats her like a beloved younger sister.
+She is a refined, pretty girl, so she's popular with boys, but her slightly shy and quiet personality mean that she has yet to find a boyfriend. But she is interested in Kevin because of his class and kindness.
+CAS Ability: Short-term Precognition
+Personal Weapon: Handgun

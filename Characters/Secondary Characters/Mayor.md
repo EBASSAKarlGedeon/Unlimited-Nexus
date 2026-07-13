@@ -1,0 +1,2 @@
+Mayor Mayflower
+As the current head of the city administration and the powerful Mayflower Family, the Mayor is at odds with both AEA and World Serpent. Being the close friend of Noah Kavallier, he believes that the CAS abilities of the Kavallier siblings possess a great power that might affect all of the world. He is also the master of Victoria Housekeeping Co., which operates as his private intelligence.

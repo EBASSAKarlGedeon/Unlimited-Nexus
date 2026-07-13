@@ -1,0 +1,3 @@
+Kevin:  1boy, short hair, white hair, red eyes, white shirt, red tie, black pants, expressionless, black katana, glowing eyes, yellow feathers, white background, katana in hand, cowboy shot
+Cecilia: 1girl, green hair, head fins, headband, purple eyes, large breasts, cleavage, fingernails, bracelet, pink nails, sitting, office
+Lee Tayon: (masterpiece, best quality:1.2), amazing quality, very aesthetic, 32k, absurdres, newest,  1boy, short hair, blue hair, blue eyes, black hooded jacket, long black pants, black gloves, expressionless, blue longsword, glowing eyes, blue glowing, white background, sword in hand, cowboy shot

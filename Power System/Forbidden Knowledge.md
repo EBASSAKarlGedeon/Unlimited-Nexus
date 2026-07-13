@@ -1,0 +1,3 @@
+## Forbidden Knowledge
+
+At an unknown time, an individual of immense cognitive power executed a **global mental manipulation**, erasing or restricting humanity’s awareness of certain phenomena. Since knowledge is power, abilities such as **time manipulation, resurrection, mental manipulation, space manipulation, soul manipulation, high-level gravity manipulation, and nation-to-universe-scale molecular manipulation**, along with six other advanced CAS domains, were lost or deemed forbidden. Collectively, they are labeled **“Forbidden Knowledge.”** Those who rediscover or wield even fragments of it are regarded with awe, fear, or reverence, their potential to reshape reality making them either humanity’s greatest hope or its most terrifying threat.
